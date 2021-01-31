@@ -1,1 +1,0 @@
-# norgielynpadrones.github.io
